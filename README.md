@@ -1,0 +1,2 @@
+# semencomputer
+me compucter 
